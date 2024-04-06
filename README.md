@@ -1,2 +1,1 @@
-# Amosjtambahportfolio
-My assignment 
+# Amosjtambahportfoli
